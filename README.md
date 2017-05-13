@@ -8,7 +8,7 @@
 我觉得，科创是一个很好的平台，对于培养创造力和耐心，增强团队协作与配合，以及与来自各地的创客交流，都有很大的促进作用。
 ## 贡献
 感谢老师的指导和团队的共同努力，才有了这次项目的成功。
-## 附：比赛现场
+### 附：比赛现场
 ![31494676642_.pic.jpg](http://upload-images.jianshu.io/upload_images/2218072-c3c773e518fb2770.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
 ![41494676643_.pic.jpg](http://upload-images.jianshu.io/upload_images/2218072-819311576bf60e90.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
